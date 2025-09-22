@@ -1,1 +1,1 @@
-# pemrograman-mobile-tugas-conditional-Chindy-Auliah-R.L-07352311129
+Nama : Chindy Auliah R. Lambado
