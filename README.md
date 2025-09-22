@@ -1,1 +1,1 @@
-Nama : Chindy Auliah R. Lambado
+Nama : Chindy Auliah R. Lambado NPM : 07352311129
